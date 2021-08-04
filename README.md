@@ -1,1 +1,1 @@
-- 📫 How to reach me: daniel[at]chaoside.win | [Chaoside](https://chaoside.net)
+- 📫 How to reach me: daniel[at]chaoside.net | [Chaoside](https://chaoside.net)
